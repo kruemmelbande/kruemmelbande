@@ -1,2 +1,5 @@
-### Hi, i do stoopid stuff
-I just like to program for fun, feel free to contribute to anything you like <3
+# Hi im Kruemmelbande ^^
+
+Hi, im Kruemmelbande, and i just like to program for fun
+ 
+Im a furry, and i dont know what else to say. 
